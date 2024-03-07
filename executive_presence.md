@@ -1,1 +1,1 @@
-![image](https://github.com/avinashbarnwal/ceo_rituals/assets/6061417/c438df78-e95c-4e03-aae8-364e7832af48 250x250)
+![image](https://github.com/avinashbarnwal/ceo_rituals/assets/6061417/c438df78-e95c-4e03-aae8-364e7832af48 = 250x250)
