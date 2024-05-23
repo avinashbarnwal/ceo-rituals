@@ -1,1 +1,1 @@
-https://www.msn.com/en-in/money/news/why-i-look-for-leaders-and-not-managers-abhyuday-jindal/ar-BB1kAYwh?ocid=msedgdhp&pc=u531&cvid=087c297591a542dacf843b447215c5ba&ei=23
+[Difference between Leaders and Managers] https://www.cnbctv18.com/business/entrepreneurship-business/abhyuday-jindal-view-difference-between-leaders-and-managers-jindal-stainless-19370021.html
