@@ -1,0 +1,1 @@
+https://www.thehindu.com/sci-tech/technology/what-does-the-aws-adash-developers-case-tell-about-cloud-data-management-explained/article69250253.ece
